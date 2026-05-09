@@ -1,4 +1,4 @@
-
+new Logic Pro for macOS Preset | normalization + multi-cam-editing offers the most advanced Logic Pro for macOS preset, with normalization and multi-cam-editing. Ideal for
 
 
 
